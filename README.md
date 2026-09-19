@@ -1,4 +1,12 @@
-## Hi there 👋
+# Axron
+
+Axron is an online store focused on mobile accessories, including chargers, cables, earphones, and power banks.
+
+We provide mobile accessories for Apple, Samsung, and other popular smartphone brands.
+
+## Featured Product
+
+[Apple 20W USB-C Power Adapter](https://axron.ir/product/1176/%D8%B4%D8%A7%D8%B1%DA%98%D8%B1-%D9%81%D8%B3%D8%AA-%D8%A2%DB%8C%D9%81%D9%88%D9%86-20-%D9%88%D8%A7%D8%AA%DB%8C/) 👋
 
 <!--
 **ax-ron/ax-ron** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
