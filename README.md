@@ -8,6 +8,8 @@ We provide mobile accessories for Apple, Samsung, and other popular smartphone b
 
 [Apple 20W USB-C Power Adapter](https://axron.ir/product/1176/%D8%B4%D8%A7%D8%B1%DA%98%D8%B1-%D9%81%D8%B3%D8%AA-%D8%A2%DB%8C%D9%81%D9%88%D9%86-20-%D9%88%D8%A7%D8%AA%DB%8C/) 👋
 
+[Samsung 25W Fast Charger](https://axron.ir/product/1182/%D8%B4%D8%A7%D8%B1%DA%98%D8%B1-%D8%AF%DB%8C%D9%88%D8%A7%D8%B1%DB%8C-%D8%B3%D9%88%D9%BE%D8%B1-%D9%81%D8%B3%D8%AA-%D8%B3%D8%A7%D9%85%D8%B3%D9%88%D9%86%DA%AF-%D9%85%D8%AF%D9%84-ta-800-3-%D9%BE%DB%8C%D9%86/) 👋
+
 <!--
 **ax-ron/ax-ron** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
