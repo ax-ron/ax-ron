@@ -10,6 +10,7 @@ We provide mobile accessories for Apple, Samsung, and other popular smartphone b
 
 [Samsung 25W Fast Charger](https://axron.ir/product/1182/%D8%B4%D8%A7%D8%B1%DA%98%D8%B1-%D8%AF%DB%8C%D9%88%D8%A7%D8%B1%DB%8C-%D8%B3%D9%88%D9%BE%D8%B1-%D9%81%D8%B3%D8%AA-%D8%B3%D8%A7%D9%85%D8%B3%D9%88%D9%86%DA%AF-%D9%85%D8%AF%D9%84-ta-800-3-%D9%BE%DB%8C%D9%86/) 👋
 
+[شارژر سامسونگ](https://axron.ir/category/61/%DA%A9%D8%A7%D8%A8%D9%84-%D8%A2%D8%AF%D8%A7%D9%BE%D8%AA%D9%88%D8%B1-%D8%B3%D8%A7%D9%85%D8%B3%D9%88%D9%86%DA%AF) 👋
 
 
 [خرید شارژر آیفون](https://axron.ir/category/59/%DA%A9%D8%A7%D8%A8%D9%84-%D8%A2%D8%AF%D8%A7%D9%BE%D8%AA%D9%88%D8%B1-%D8%A2%DB%8C%D9%81%D9%88%D9%86) 👋
